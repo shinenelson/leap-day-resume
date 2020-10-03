@@ -21,12 +21,12 @@ October 2015 - July 2018
 * Created various policy documentation
 
 ### Education
-##### Under-graduation | Bachelor of Technology ( B.Tech )
+#### Under-graduation | Bachelor of Technology ( B.Tech )
 Dropped-out after course completion ( 2015 ) <br />
 Mar Baselios College of Engineering & Technology, Thiruvananthapuram, Kerala, India
 
-##### Grade XII | AISSCE
+#### Grade XII | AISSCE
 Marthoma Public School, Kochi, Kerala, India | 2010
 
-##### Grade X | AISSE
+#### Grade X | AISSE
 The Indian School, Bahrain | 2008
