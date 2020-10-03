@@ -23,10 +23,10 @@ October 2015 - July 2018
 ### Education
 ##### Under-graduation | Bachelor of Technology ( B.Tech )
 Dropped-out after course completion ( 2015 ) <br />
-Mar Baselios College of Engineering & Technology, Thiruvananthapuram, Kerala, India
+Mar Baselios College of Engineering & Technology, Thiruvananthapuram, Kerala
 
 ##### Grade XII | AISSCE
-Marthoma Public School, Kochi, Kerala, India | 2010
+Marthoma Public School, Kochi, Kerala | 2010
 
 ##### Grade X | AISSE
 The Indian School, Bahrain | 2008
